@@ -24,10 +24,9 @@ ingredients:
 ---
 ###### Au préalable
 
-1. \- Supprimez les nervures épaisses des feuilles d’endive et émincez le reste en lanières de
-2. ± 2 cm.
-3. \- Coupez les champignons en 4.
-4. \- Râpez le parmesan.
+1. \- Supprimez les nervures épaisses des feuilles d’endive et émincez le reste en lanières de ± 2 cm.
+2. \- Coupez les champignons en 4.
+3. \- Râpez le parmesan.
 
 ###### Préparation (15 min)
 
