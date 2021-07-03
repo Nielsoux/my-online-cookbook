@@ -30,11 +30,10 @@ ingredients:
 
 ###### Préparation (15 min)
 
-1. 1 Faites cuire les spirellis dans de l’eau bouillante légèrement salée (voir temps de cuisson sur
-2. l’emballage). Égouttez en réservant l’eau des pâtes.
-3. 2 Entre-temps, faites fondre 1 c. à soupe de beurre dans une poêle et cuisez-y les aiguillettes de poulet 3 min de chaque côté. Salez et poivrez. Réservez au chaud hors de la poêle.
-4. 3 Faites fondre 1 c. à soupe de beurre dans la poêle et saisissez-y les champignons 5 min à feu vif. Mélangez régulièrement, salez et poivrez. Remettez-y le poulet.
-5. 4 Déposez l’endive dans une passoire et versez l’eau des pâtes par-dessus. Égouttez. Mettez tous les ingrédients dans la casserole, incorporez-y le Boursin Cuisine et réchauffez 2 min.
+1. Faites cuire les Spirellis dans de l’eau bouillante légèrement salée (voir temps de cuisson sur l’emballage). Égouttez en réservant l’eau des pâtes.
+2. Entre-temps, faites fondre 1 c. à soupe de beurre dans une poêle et cuisez-y les aiguillettes de poulet 3 min de chaque côté. Salez et poivrez. Réservez au chaud hors de la poêle.
+3. Faites fondre 1 c. à soupe de beurre dans la poêle et saisissez-y les champignons 5 min à feu vif. Mélangez régulièrement, salez et poivrez. Remettez-y le poulet.
+4. Déposez l’endive dans une passoire et versez l’eau des pâtes par-dessus. Égouttez. Mettez tous les ingrédients dans la casserole, incorporez-y le Boursin Cuisine et réchauffez 2 min.
 
 ###### Présentation
 
